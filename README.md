@@ -1,1 +1,0 @@
-# open-for-everyone.github.io
